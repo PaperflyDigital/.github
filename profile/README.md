@@ -1,6 +1,6 @@
 # Welcome to Paperfly Digital GitHub Profile!
 
-![Agency Logo](https://www.paperflydigital.com/wp-content/uploads/2023/09/logo.png)
+![Agency Logo](https://www.paperflydigital.com/wp-content/uploads/2024/08/paperflydigitallogolight.svg)
 
 ## About Us
 
